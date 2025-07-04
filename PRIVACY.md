@@ -35,4 +35,4 @@ This Privacy Policy may be updated from time to time. Any changes will be posted
 
 If you have any questions about this Privacy Policy or the Extension, please contact:
 
-**Email:** rawheat.gulati@hotmail.com
+**Email:** rawheat.gulati123@gmail.com
